@@ -1,2 +1,3 @@
 # etornam_quiz_2
-This is quiz two for Etornam's class
+JABISI MPONIGNAN RICHARD
+PUIT/23110014
